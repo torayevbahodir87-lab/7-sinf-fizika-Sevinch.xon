@@ -1,0 +1,1 @@
+# 7-sinf-fizika-Sevinch.xon
